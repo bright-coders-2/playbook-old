@@ -1,0 +1,1 @@
+- Los próximos 1 y 2 de Abril son festivos y por esto no habrá actividades.
